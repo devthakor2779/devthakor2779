@@ -1,0 +1,1 @@
+- Black Coffee : coffee that is brewed without milk or cream, resulting in a dark, rich color. It is typically made by steeping ground coffee beans in hot water. Black coffee is known for its strong and bold flavor, and many people enjoy it for its simplicity and the natural taste of the coffee beans.
